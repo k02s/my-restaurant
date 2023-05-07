@@ -36,7 +36,7 @@ Here are some of our popular dishes:
 For reservations or inquiries, please contact us at:
 
 - Phone: (123) 456-7890
-- Email: info@deliciousbites.com
+- Email: info@butter.com
 - Address: 123 Mecca Street, Amman, Jordan
 
 We look forward to serving you at Delicious Butter!
